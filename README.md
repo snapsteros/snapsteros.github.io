@@ -1,1 +1,0 @@
-# snapsteros.github.io
